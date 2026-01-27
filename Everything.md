@@ -54,3 +54,14 @@ ironie,groteska
 Směšné lásky povídkový soubor
 Žert
 Nesnesitelná lehkost bytí
+
+Josef Škvorecký
+68Publisher
+Náchod
+1958 - Zbabělci - krysy z děr na konci války 
+Dan Smiřický - postava která promíta Škvoreckého
+Tankový prapor - taky dan a byl mlady promitani valky
+
+Bohumil Hrabal
+
+
